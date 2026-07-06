@@ -1,4 +1,4 @@
-# 
+# Ultimato Advanced SystemCare ferramentas para Mac OS | Profissional Advanced SystemCare ferramentas para PC Windows. Com varredura rapida e gerenciamento de cookies — otimizado para máximo desempenho em cada plataforma.
 
 
 
